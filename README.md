@@ -1,1 +1,0 @@
-# Fast_Lab_Task_06
